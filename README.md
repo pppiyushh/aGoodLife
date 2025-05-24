@@ -10,7 +10,7 @@ Few things to keep in mind always(with exceptions):
 - Its okay to enjoy your solitude.
 - Get bored, don't always try to chase something or scroll through social media.
 - Understand the situation and change accordingly.
-- Dont make your after good on the cost of ruining your current life.
+- I feel it'll be better to make your current life better rather than make your after life good (like chasing heaven or Jannat).
 
 
 I'll give examples to some of the exceptions for better clarity.
